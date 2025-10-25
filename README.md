@@ -1,1 +1,0 @@
-# compfix.almaty
